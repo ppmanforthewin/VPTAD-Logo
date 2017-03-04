@@ -1,1 +1,0 @@
-# VPTAD-Logo
